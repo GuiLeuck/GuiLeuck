@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Guilherme Leuck 😁
+## Bem-vindo(a) ao perfil do Guilherme Gonçalves 😁
 
  <div>
    <a href="https://github.com/GuiLeuck">
